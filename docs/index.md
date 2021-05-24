@@ -40,4 +40,9 @@
 
 中文 小说3 渣翻残卷 [https://b23.tv/pqvXNT](https://b23.tv/pqvXNT)
 
+小说 1 英文版  [http://libgen.rs/fiction/2EBCDF4B3C78AE47900392475E09F57A](http://libgen.rs/fiction/2EBCDF4B3C78AE47900392475E09F57A)
+
+小说 2 英文版  [http://libgen.rs/fiction/1FC226AA1B52CEF228A05647260A7E5E](http://libgen.rs/fiction/1FC226AA1B52CEF228A05647260A7E5E)
+
+小说 3 英文版  [http://libgen.rs/fiction/0D82E22F6D8FA2F63AF354BF43C52A69](http://libgen.rs/fiction/0D82E22F6D8FA2F63AF354BF43C52A69)
 
