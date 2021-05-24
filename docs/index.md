@@ -4,6 +4,12 @@
 
 漫画 [http://tieba.baidu.com/p/5773399060](http://tieba.baidu.com/p/5773399060 )
 
+哔哩哔哩漫画 [https://manga.bilibili.com/m/detail/mc27384](https://manga.bilibili.com/m/detail/mc27384)
+
+网易漫画 源 [https://www.bilibili.com/read/readlist/rl293910](https://www.bilibili.com/read/readlist/rl293910)
+
+兔子窝翻译版本 残本 [https://space.bilibili.com/359014614/article](https://space.bilibili.com/359014614/article)
+
 画集2nd
 [http://tieba.baidu.com/p/4578564585](http://tieba.baidu.com/p/4578564585) 
 
@@ -30,8 +36,8 @@
  
 日语中字 [https://b23.tv/av1523356](https://b23.tv/av1523356)
 
-小说
+中文 小说1与2  [https://www.lightnovel.cn/thread-407590-1-1.html](https://www.lightnovel.cn/thread-407590-1-1.html)
 
-中文 1与2 
+中文 小说3 渣翻残卷 [https://b23.tv/pqvXNT](https://b23.tv/pqvXNT)
 
-[https://www.lightnovel.cn/thread-407590-1-1.html](https://www.lightnovel.cn/thread-407590-1-1.html)
+
