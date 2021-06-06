@@ -10,6 +10,8 @@
 
 兔子窝翻译版本 残本 [https://space.bilibili.com/359014614/article](https://space.bilibili.com/359014614/article)
 
+兔子窝翻译版本 19-104 [https://www.bnmanhua.com/comic/20521.html](https://www.bnmanhua.com/comic/20521.html)
+
 画集2nd
 [http://tieba.baidu.com/p/4578564585](http://tieba.baidu.com/p/4578564585) 
 
