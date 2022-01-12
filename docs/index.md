@@ -40,7 +40,7 @@
 
 中文 小说1与2  [https://www.lightnovel.cn/thread-407590-1-1.html](https://www.lightnovel.cn/thread-407590-1-1.html)
 
-中文 小说3 渣翻残卷 [https://b23.tv/pqvXNT](https://b23.tv/pqvXNT)
+中文 小说3 渣翻残卷 [https://www.bilibili.com/read/readlist/rl37326](https://www.bilibili.com/read/readlist/rl37326)
 
 小说 1 英文版  [http://libgen.rs/fiction/2EBCDF4B3C78AE47900392475E09F57A](http://libgen.rs/fiction/2EBCDF4B3C78AE47900392475E09F57A)
 
