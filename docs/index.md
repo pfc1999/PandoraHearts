@@ -22,7 +22,7 @@
 
 动画
  
-日语中字 [https://b23.tv/ep66681](https://b23.tv/ep66681)
+日语中字 [https://b23.tv/ep66681](https://b23.tv/ep66664)
  
 日语中字 [https://b23.tv/av26260](https://b23.tv/av26260)
  
