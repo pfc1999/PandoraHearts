@@ -4,6 +4,8 @@
 
 漫画 [http://tieba.baidu.com/p/5773399060](http://tieba.baidu.com/p/5773399060 )
 
+台版漫画 [https://pan.baidu.com/share/init?surl=Yf0KCPIbjyQkrbYttqXhYQ&pwd=xn35](https://pan.baidu.com/share/init?surl=Yf0KCPIbjyQkrbYttqXhYQ&pwd=xn35)
+
 哔哩哔哩漫画 [https://manga.bilibili.com/m/detail/mc27384](https://manga.bilibili.com/m/detail/mc27384)
 
 网易漫画 源 [https://www.bilibili.com/read/readlist/rl293910](https://www.bilibili.com/read/readlist/rl293910)
@@ -37,6 +39,8 @@
 日语中字 [https://b23.tv/av25940](https://b23.tv/av25940)
  
 日语中字 [https://b23.tv/av1523356](https://b23.tv/av1523356)
+
+小说 第三卷 文本扫图 [https://tieba.baidu.com/p/9756659359](https://tieba.baidu.com/p/9756659359)
 
 中文 小说1与2  [https://www.lightnovel.cn/thread-407590-1-1.html](https://www.lightnovel.cn/thread-407590-1-1.html)
 
